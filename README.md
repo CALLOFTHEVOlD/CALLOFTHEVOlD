@@ -16,7 +16,7 @@ Don't flirt if under 17, do not send me nsfw without asking. if uncomf, will hid
     </div>
 
 
-click apple for a surprise!
+click locket for a surprise!
 <div align="center">
       <a href="https://www.youtube.com/watch?v=lb7CdUP5EXA">
      <img 
