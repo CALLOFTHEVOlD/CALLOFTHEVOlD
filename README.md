@@ -11,7 +11,7 @@ i'm easily annoyed, i love gothic stuff
 
 
 
-click apple for a surprise!
+
 <div align="Center">
       <a href="https://www.youtube.com/watch?v=nodZA-ghy4E">
      <img 
