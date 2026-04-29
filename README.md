@@ -19,7 +19,7 @@
       </a>
     </div>
 
-<p align="center"> age range 17 - 21
+<p align="center"> age range 17 - twenty smth
 </p> 
 
 
