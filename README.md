@@ -1,14 +1,12 @@
-
-    
+#<p align="center"> ATABOOK:https://achenycto.atabook.org    
 ## <p align="center">Ache.</p>
 ### <p align="center">it's turbulent!/lyr</p>
-
 
 <p align="center">Hello 18 she/him 
 
 <p align="center">im a girl, wtfromantic.
 </p> 
-<p align="center"> ATABOOK:https://achenycto.atabook.org
+
 <p align="center">Don't flirt if under 17. if uncomf, will hide. also senstitive person idk, not in the i "am triggered way", i will cry
     
 <p align="center">i'm also very flirty jokingly if you're like, a friend.
