@@ -1,8 +1,7 @@
-## <p align="center">Scylla/Ache</p>
-#### <p align="center">Bernadette. . . </p>
+## <p align="center">Ache</p>
+#### <p align="center">. . . </p>
 
 <p align="center"> 18. he/her <br> i hide freely <br> age range 17 - twenty smth
-<p align="center"> when it comes to emotions, i am slightly closed off. <br> 
 
 
 <div align="Center">
